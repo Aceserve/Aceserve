@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Aceserve
+- 👋 Hi, I’m @Aceserve Collins
 - 👀 I’m interested in business development 
 - 🌱 I’m currently learning tech sales 
 - 💞️ I’m looking to collaborate on business plans 
-- 📫 How to reach me ...
+- 📫 How to reach me ... daramolacollins@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: introvert but love making friends 
 
